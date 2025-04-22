@@ -1,7 +1,5 @@
 - 👋 Hi, I’m @Otakosin
 - 👀 I’m interested in programing
 - 🌱 I’m currently learning programing
-- 💞️ I’m looking to collaborate on Twitch
-- 📫 How to reach me go to titter and msg me
 - ⚡ Fun fact: I like potatoes and play war thunder
 - (I hate war thunder)
